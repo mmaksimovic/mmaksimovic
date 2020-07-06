@@ -6,4 +6,4 @@
 
 If you'd like us to connect, [check out my Twitter](https://twitter.com/m_maksimovic_).
 
-![](https://media.giphy.com/media/3osxYdIFfRfulO3rpu/giphy.gif)
+![](https://media.giphy.com/media/51XVqRxtB4jqo/giphy.gif)
