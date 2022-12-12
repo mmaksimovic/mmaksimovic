@@ -4,6 +4,6 @@
 
 🦄 🏳️‍🌈 🐶
 
-If you'd like us to connect, [check out my Twitter](https://twitter.com/m_maksimovic_).
+If you'd like us to connect, [check out my Mastodon](https://hachyderm.io/@milica_m).
 
 ![](https://media.giphy.com/media/51XVqRxtB4jqo/giphy.gif)
